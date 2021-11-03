@@ -1,1 +1,1 @@
-Proovime luua uut veebilehte paaristööna. Vist saame hakkama
+Proovime luua uut veebilehte paaristööna. Vaatame mis siin saama hakkab.
